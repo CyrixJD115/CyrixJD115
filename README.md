@@ -20,7 +20,7 @@
 ### 🎨 Personal Interests
 - **🎮 Gaming:** I’m a huge fan of all kinds of gaming platforms and consoles. Whether it’s Minecraft, Zelda, Pokémon, or various anime games, I’m always on the lookout for a great game to dive into.
 - **📚 Reading:** While I love manga and anime books, I don’t always have the time to read them. However, when I do find the time, I thoroughly enjoy getting lost in these captivating stories.
-- **🖌️ AI (Media/Art Creator):** I create both SFW with AI, blending creativity with technology.
+- **🖌️ AI (Media/Art Creator):** I create AI Art, blending creativity with technology.
 
 ### 🤩 Fun Facts
 - **♑️ Proud Capricorn:** Embrace my astrological sign with its unique traits and characteristics.
